@@ -22,6 +22,8 @@
 
 **Strawpage!** - https://claudiasite.straw.page/
 
+**I block freely ^_^**
+
 <img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/8ba91b3c-59d9-4bc0-8ff8-78934cfce2fe" />
 
 ## My fandoms/games I like:
