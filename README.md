@@ -3,6 +3,8 @@
 <img width="1127" height="728" alt="image" src="https://github.com/user-attachments/assets/603a4598-ee41-4feb-be5d-7e94021c7d77" />
 <img width="1600" height="210" alt="image" src="https://github.com/user-attachments/assets/7ac6c2d7-7777-4ff7-9da8-7d7968cb75f4" />
 
+**IMAGES MAY BREAK**
+
 **Heii! I'm Azure, but I also have some other names such as Claudia or Kani. I'm free for any other nicknames ^_^**
 
 **My pronouns r He/She/They (Genderfluid)** ![GENDERFLUID FLAG](https://media.discordapp.net/attachments/1371629223646855189/1402364807453081631/tumblr_3aee1c51c2ccfaab2652c2f7b16e4184_091cdd46_250.webp?ex=6893a580&is=68925400&hm=1c40258813c0a60f4f8c4bfaf835c9360397e44f2ff40defda3b60c25556f822&=&animated=true)<br>
