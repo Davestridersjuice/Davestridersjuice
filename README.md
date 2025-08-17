@@ -98,6 +98,8 @@
 
 **Ok now bye-bye ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp)**
 
+![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&color=blueviolet)
+
 <picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake-dark.svg">
   <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake.svg">
