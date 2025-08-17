@@ -1,13 +1,18 @@
 <div align="center">
 
-<img width="1127" height="728" alt="image" src="https://github.com/user-attachments/assets/603a4598-ee41-4feb-be5d-7e94021c7d77" />
-<img width="1600" height="210" alt="image" src="https://github.com/user-attachments/assets/7ac6c2d7-7777-4ff7-9da8-7d7968cb75f4" />
+
+<img width="1127" height="728" alt="image" src="https://github.com/user-attachments/assets/7a4003a3-762e-4675-b50d-5265b392bedc" />
+
+<img width="1194" height="176" alt="image" src="https://github.com/user-attachments/assets/b3ee99dd-3ee9-4a04-a536-0b07d6ad21ca" />
 
 **IMAGES MAY BREAK**
+**WIP**
 
-**Heii! I'm Azure, but I also have some other names such as Claudia or Kani. I'm free for any other nicknames ^_^**
+![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani. I'm free for any other nicknames ^_^** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
-**My pronouns r He/She/They (Genderfluid)** ![GENDERFLUID FLAG](https://media.discordapp.net/attachments/1371629223646855189/1402364807453081631/tumblr_3aee1c51c2ccfaab2652c2f7b16e4184_091cdd46_250.webp?ex=6893a580&is=68925400&hm=1c40258813c0a60f4f8c4bfaf835c9360397e44f2ff40defda3b60c25556f822&=&animated=true)<br>
+**My pronouns r He/She/They** ![GENDERFLUID FLAG](https://i.ibb.co/VWQn0bPR/tumblr-3aee1c51c2ccfaab2652c2f7b16e4184-091cdd46-250.webp)
+
+
 
 **I plan to get more into deltarune and touhou soon ![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362605825298462/tumblr_eab95519e581ba3bed64a84d04d262e3_d069e208_75.webp?ex=6893a373&is=689251f3&hm=b4895df0b199140aea4d7870efc0390f2b3adda20b43fd2343fe97b330299e34&=&animated=true) I'm looking forward to finding more fandoms!** <br>
 
@@ -24,47 +29,47 @@
 
 **Strawpage!** - https://claudiasite.straw.page/
 
-**I block freely ^_^**
+<div align= "center">
 
-<img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/8ba91b3c-59d9-4bc0-8ff8-78934cfce2fe" />
+**I block freely ^_^** 
+
+</div>
+
+<img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/53f16c31-802b-4ca0-b830-80393a6c7657" />
 
 ## My fandoms/games I like:
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Games**: *Deltarune, Undertale (+ sans au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Puppet combo games, Dragon Raja, and more*
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Games**: *Deltarune, Undertale (+ au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Puppet combo games, Dragon Raja, and more*
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer, Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Black Cat and more*
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Demon slayer and more*
 
 **Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
+
+<img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/53f16c31-802b-4ca0-b830-80393a6c7657" />
 
 ## Stuff about me ᓚᘏᗢ
 
 </div>
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I'm usually sitting in ponytown with my friends<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I've been trying to be nicer lately as i have been pretty rude so I'm working on that!<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may sometimes yap a bunch and never stop talking!<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass<br>
- <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I REALLY like cats and the color purple... Purple is my fav color <br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually sitting in ponytown with my friends<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I've been trying to be nicer lately as i have been pretty rude so I'm working on that!<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I may sometimes yap a bunch and never stop talking!<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I REALLY like cats and the color purple... Purple is my fav color <br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I sometimes become overly serious and dry or I may ask questions randomly like "Am I getting boring" Or stuff like that... <br>
 
 <div align="center">
+
+**More stamps**
+
+![PCaddiction](https://i.ibb.co/8L3SXPBt/tumblr-99128e87237bd00fa29e63e27a7982b0-2fd24739-250.webp) ![Higurashi](https://i.ibb.co/DHW2GpSk/tumblr-818c5f972ccd65e02ea0a5bd8c667f2a-bc188e33-250.webp) ![Allmyfriendsrtoxicheh..](https://i.ibb.co/nqNpmZPF/tumblr-63eb3f54913691f490ae10d4df069082-f316007c-250.webp) ![iMIGHThavearthritislowkey](https://i.ibb.co/RGPGLLRk/tumblr-aa86ddcaf4b581df14a18d3f745f8d5a-18001c67-250.webp) <br>
+
+![ANIMALCROSSINGNANI??SOOKAWAIIDESUHEHSNORT](https://i.ibb.co/XZz3PXr7/tumblr-3816d4e72955f012c29f3f151e9ed7b7-8fe8e747-100.webp) ![Robloxsadlysigh..](https://i.ibb.co/nMkPVBYm/tumblr-dab34ad0998076c478627331a91fc423-ff867008-250.png) ![Sotuffgame](https://i.ibb.co/jkKMhXZx/tumblr-5f3b517278bf26c5303ef0178734790d-bb25c519-100.jpg)  ![CutesyForsakenskin4U!](https://i.ibb.co/8LQ5LWps/tumblr-98f53db1ccd3723ccacfa489dc5b94fd-7aecc889-100.png)
  
 ![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
-
-</div>
-
-## DNI:
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/efad364f-daf4-4e82-a4dc-40861c0bfe8f" />Darkshippers/proshippers/shota/loli con/incel/femcel/blackpill and anything else of that problematic/annoying nature<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/15fdd7a4-4b15-45f4-bfc9-a86b601b4196" />If you're one of those weird yaoi/yuri obsessed freaks (Like if you say "is he bothering you queen?" "Oh yeah read Jinx!") etc...<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/9de25df2-bea4-440a-9aee-35b94d4ea974" />If you support AI<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fa96deb0-1176-4478-8af4-b0432a7a4c3b" />Pushy/rude people (Like if you push for personal info and make the person uncomfy)<br>
-
-<div align="center">
-
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0719ab93-25ad-4d62-9c04-1d74e82b7ab7" />That's all I could think of<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/93a890f9-14e1-41ec-91e5-992a1533242b" />
 
 ## Item sources:
 [Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
@@ -82,4 +87,5 @@
   <img alt="github contribution grid snake animation" src="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake.svg">
 </picture>
 
-<img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/f1a25d96-862d-4458-8d95-ab3f4a5cdeff" />
+<img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/de176ff6-6970-4d4a-8322-06e7906024f6" />
+
