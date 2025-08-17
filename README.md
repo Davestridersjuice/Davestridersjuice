@@ -63,23 +63,38 @@
 
 <div align="center">
 
-**More stamps**
+**More stamps 💜**
 
 ![PCaddiction](https://i.ibb.co/8L3SXPBt/tumblr-99128e87237bd00fa29e63e27a7982b0-2fd24739-250.webp) ![Higurashi](https://i.ibb.co/DHW2GpSk/tumblr-818c5f972ccd65e02ea0a5bd8c667f2a-bc188e33-250.webp) ![Allmyfriendsrtoxicheh..](https://i.ibb.co/nqNpmZPF/tumblr-63eb3f54913691f490ae10d4df069082-f316007c-250.webp) ![iMIGHThavearthritislowkey](https://i.ibb.co/RGPGLLRk/tumblr-aa86ddcaf4b581df14a18d3f745f8d5a-18001c67-250.webp) <br>
 
-![ANIMALCROSSINGNANI??SOOKAWAIIDESUHEHSNORT](https://i.ibb.co/XZz3PXr7/tumblr-3816d4e72955f012c29f3f151e9ed7b7-8fe8e747-100.webp) ![Robloxsadlysigh..](https://i.ibb.co/nMkPVBYm/tumblr-dab34ad0998076c478627331a91fc423-ff867008-250.png) ![Sotuffgame](https://i.ibb.co/jkKMhXZx/tumblr-5f3b517278bf26c5303ef0178734790d-bb25c519-100.jpg)  ![CutesyForsakenskin4U!](https://i.ibb.co/8LQ5LWps/tumblr-98f53db1ccd3723ccacfa489dc5b94fd-7aecc889-100.png)
+![ANIMALCROSSINGNANI??SOOKAWAIIDESUHEHSNORT](https://i.ibb.co/XZz3PXr7/tumblr-3816d4e72955f012c29f3f151e9ed7b7-8fe8e747-100.webp) ![Robloxsadlysigh..](https://i.ibb.co/nMkPVBYm/tumblr-dab34ad0998076c478627331a91fc423-ff867008-250.png) ![Sotuffgame](https://i.ibb.co/jkKMhXZx/tumblr-5f3b517278bf26c5303ef0178734790d-bb25c519-100.jpg)  ![CutesyForsakenskin4U!](https://i.ibb.co/8LQ5LWps/tumblr-98f53db1ccd3723ccacfa489dc5b94fd-7aecc889-100.png) ![JASONVOORHEES](https://64.media.tumblr.com/3f91f6bec771bb578d75dd37c1948124/ba720c94c5a1810d-02/s100x200/611362e752a54b7411fecd6d2acd597491b1ee94.pnj)
  
 ![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
 
 ## Item sources:
 [Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
 [Littlepixels](https://www.tumblr.com/wiltyrose/746757437056565248/%E1%9B%9D-%E2%84%B1yodor-%F0%9D%92%ABixels-%F0%93%8F%8F-f2u-w-repost-%E1%B5%92%CA%B3?source=share)
-[Pink&Purplepixels](https://www.tumblr.com/mikayuuyuri/781551677893410816/%E1%98%9B-%E1%98%9A-pink-purple-pixels?source=share) <dv>
-
+[Wiltyrosepage](https://www.tumblr.com/wiltyrose/749590765167099904/%F0%9D%92%B4ou-are-my-highness)
 [Panty&stockingtemplate](https://www.tumblr.com/lavendergalactic/747588068545101824/stocking-anarchy-tumblr-dividers?source=share)
-[TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/)
+[Neurocutepage](https://www.tumblr.com/neurocute/759898569938485248/purple-pixels-recolors-likereblog-if-using)
+[TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/) <br>
 
-**I couldn't find the other 2 sadly :( But most-likely credit wasn't needed for those.**
+<div align="center">
+
+**Stamps: (In order)**
+
+[PCaddiction](https://www.tumblr.com/such-a-tortured-soul/779142238931484672/purple-blinkies-compilation-pt1)
+[Higurashi/Click/Joy](https://www.tumblr.com/puppysprinkl/791932697783205888/misc-blinkie-dump-13)
+[Animalcrossing](https://www.tumblr.com/puppysprinkl/791211662001700864/pink-and-purple-misc-stamps-stamp-dump-9)
+[Roblox](https://www.tumblr.com/engravedlives/748852026990034944/misc-game-stamps-graphics)
+
+
+**I'll add the rest later, I'm currently busy**
+
+
+**Srry if I missed any**
+
+**Ok now bye-bye ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp)**
 
 <picture>
   <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake-dark.svg">
