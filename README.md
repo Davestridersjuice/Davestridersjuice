@@ -6,7 +6,7 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> **IMAGES MAY BREAK** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> 
 
-![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani. I'm free for any other nicknames ^_^** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
+![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani.** [Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
 **My pronouns r He/She/They**
 ![GENDERFLUID FLAG](https://i.ibb.co/VWQn0bPR/tumblr-3aee1c51c2ccfaab2652c2f7b16e4184-091cdd46-250.webp)
@@ -36,11 +36,11 @@
 
 ## My fandoms/games I like:
 
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Games**: *Deltarune, Undertale (+ au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Puppet combo games, Dragon Raja, and more*
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Games**: *Deltarune, Undertale (+ au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Silent Hill, Puppet combo games, Dragon Raja, and more*
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Wonder Egg Priority, Demon slayer and more*
 
-**Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
+**Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, Icedtea, Soma and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
 
 <img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/53f16c31-802b-4ca0-b830-80393a6c7657" />
 
@@ -50,13 +50,13 @@
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually sitting in ponytown with my friends<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I've been trying to be nicer lately as i have been pretty rude so I'm working on that!<br>
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I might be pretty awkward/not rlly message at first but trust me I'm just nervous
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I may sometimes yap a bunch and never stop talking!<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I REALLY like cats and the color purple... Purple is my fav color <br>
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I sometimes become overly serious and dry or I may ask questions randomly like "Am I getting boring" Or stuff like that... <br>
 
 <div align="center">
 
