@@ -17,7 +17,9 @@
 **I plan to get more into deltarune and touhou soon. I'm looking forward to finding more fandoms!** <br>
 
 ![moonliquid](https://i.ibb.co/nq16CxPs/tumblr-d6ef661aae18e38b58db6c6bb24f5a38-4ef7c5a4-75.webp)
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> 
 **I'M A MINOR** 
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> 
 ![moonliquid](https://i.ibb.co/nq16CxPs/tumblr-d6ef661aae18e38b58db6c6bb24f5a38-4ef7c5a4-75.webp)
 
 ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **FOLLOW AND I'LL FOLLOW BACK! Follows r appreciated !** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
@@ -97,7 +99,8 @@
 [Roblox](https://www.tumblr.com/engravedlives/748852026990034944/misc-game-stamps-graphics)
 [Vocaloid](https://www.tumblr.com/puddinzducky/749538497974730752/random-pixels-4)
 [Deltarune](https://www.tumblr.com/bunnynamedstarry/791270199868391424/what-what)
-[StockingAnarchy](https://www.tumblr.com/haasuki/778047331393208320/stocking-anarchy-paswg-tumblr) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp)
+[StockingAnarchy](https://www.tumblr.com/haasuki/778047331393208320/stocking-anarchy-paswg-tumblr) 
+[Cautions](https://www.tumblr.com/pixels-thesaurus/735288489623601152/any-cautionwarning-symbol-like-the-triangle-w) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp)
 
 **Srry if I missed any**
 
