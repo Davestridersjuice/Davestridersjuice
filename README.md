@@ -11,10 +11,6 @@
 **My pronouns r He/She/They**
 ![GENDERFLUID FLAG](https://i.ibb.co/VWQn0bPR/tumblr-3aee1c51c2ccfaab2652c2f7b16e4184-091cdd46-250.webp)
 
-
-
-**I plan to get more into deltarune and touhou soon. I'm looking forward to finding more fandoms!** <br>
-
 ![moonliquid](https://i.ibb.co/nq16CxPs/tumblr-d6ef661aae18e38b58db6c6bb24f5a38-4ef7c5a4-75.webp)
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> 
 **I'M A MINOR** 
