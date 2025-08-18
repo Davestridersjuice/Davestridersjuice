@@ -2,7 +2,7 @@
 
 ![STOCKINGANARCHY](https://i.ibb.co/YTNxbVPC/tumblr-6bc5be53cd48dcedf16b4efa2c0faf5c-e33e4378-1280.webp)
 
-<img width="1194" height="176" alt="image" src="https://github.com/user-attachments/assets/b3ee99dd-3ee9-4a04-a536-0b07d6ad21ca" />
+<img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/1ae5a9ec-4b5e-4501-8a4b-0a7d1bfeac2a" />
 
 **IMAGES MAY BREAK**
 **WIP**
@@ -89,7 +89,6 @@
 ## Item sources:
 ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) [Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
 [Littlepixels](https://www.tumblr.com/wiltyrose/746757437056565248/%E1%9B%9D-%E2%84%B1yodor-%F0%9D%92%ABixels-%F0%93%8F%8F-f2u-w-repost-%E1%B5%92%CA%B3?source=share)
-[Wiltyrosepage](https://www.tumblr.com/wiltyrose/749590765167099904/%F0%9D%92%B4ou-are-my-highness)
 [Panty&stockingtemplate](https://www.tumblr.com/lavendergalactic/747588068545101824/stocking-anarchy-tumblr-dividers?source=share)
 [Neurocutepage](https://www.tumblr.com/neurocute/759898569938485248/purple-pixels-recolors-likereblog-if-using)
 [TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) <br>
