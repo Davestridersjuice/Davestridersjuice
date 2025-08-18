@@ -80,7 +80,10 @@
 
 ![Suselle](https://i.ibb.co/V0cwW89h/tumblr-5bfef89069fecec3ee1804e8d4025816-b4a1df88-100.webp)
 
-![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" />
+**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you** 
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e100fdfc-55f3-4ead-834e-5b54139b3b19" />
+
 
 ## Item sources:
 ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) [Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
