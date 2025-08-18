@@ -6,7 +6,8 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> **IMAGES MAY BREAK** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> 
 
-![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani.** [Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
+![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani.** 
+![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
 **My pronouns r He/She/They**
 ![GENDERFLUID FLAG](https://i.ibb.co/VWQn0bPR/tumblr-3aee1c51c2ccfaab2652c2f7b16e4184-091cdd46-250.webp)
@@ -50,7 +51,7 @@
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually sitting in ponytown with my friends<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I've been trying to be nicer lately as i have been pretty rude so I'm working on that!<br>
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I might be pretty awkward/not rlly message at first but trust me I'm just nervous
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I might be pretty awkward/not rlly message at first but trust me I'm just nervous <br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
