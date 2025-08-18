@@ -1,7 +1,6 @@
 <div align="center">
 
-
-<img width="1127" height="728" alt="image" src="https://github.com/user-attachments/assets/7a4003a3-762e-4675-b50d-5265b392bedc" />
+![STOCKINGANARCHY](https://i.ibb.co/YTNxbVPC/tumblr-6bc5be53cd48dcedf16b4efa2c0faf5c-e33e4378-1280.webp)
 
 <img width="1194" height="176" alt="image" src="https://github.com/user-attachments/assets/b3ee99dd-3ee9-4a04-a536-0b07d6ad21ca" />
 
@@ -30,6 +29,8 @@
 <div align= "center">
 
 **I block freely ^_^** 
+
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/80c77ef8-d389-4df8-9450-ec89a262b56c" />
 
 </div>
 
