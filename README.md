@@ -77,25 +77,27 @@
 
 ![Suselle](https://i.ibb.co/V0cwW89h/tumblr-5bfef89069fecec3ee1804e8d4025816-b4a1df88-100.webp)
 
-![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
+![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**
 
 ## Item sources:
-[Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
+![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) [Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
 [Littlepixels](https://www.tumblr.com/wiltyrose/746757437056565248/%E1%9B%9D-%E2%84%B1yodor-%F0%9D%92%ABixels-%F0%93%8F%8F-f2u-w-repost-%E1%B5%92%CA%B3?source=share)
 [Wiltyrosepage](https://www.tumblr.com/wiltyrose/749590765167099904/%F0%9D%92%B4ou-are-my-highness)
 [Panty&stockingtemplate](https://www.tumblr.com/lavendergalactic/747588068545101824/stocking-anarchy-tumblr-dividers?source=share)
 [Neurocutepage](https://www.tumblr.com/neurocute/759898569938485248/purple-pixels-recolors-likereblog-if-using)
-[TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/) <br>
-[PCaddiction](https://www.tumblr.com/such-a-tortured-soul/779142238931484672/purple-blinkies-compilation-pt1)
+[TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) <br>
+![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) [PCaddiction](https://www.tumblr.com/such-a-tortured-soul/779142238931484672/purple-blinkies-compilation-pt1)
 [Higurashi/Click/Joy](https://www.tumblr.com/puppysprinkl/791932697783205888/misc-blinkie-dump-13)
 [Animalcrossing](https://www.tumblr.com/puppysprinkl/791211662001700864/pink-and-purple-misc-stamps-stamp-dump-9)
 [Roblox](https://www.tumblr.com/engravedlives/748852026990034944/misc-game-stamps-graphics)
 [Vocaloid](https://www.tumblr.com/puddinzducky/749538497974730752/random-pixels-4)
 [Deltarune](https://www.tumblr.com/bunnynamedstarry/791270199868391424/what-what)
+[StockingAnarchy](https://www.tumblr.com/haasuki/778047331393208320/stocking-anarchy-paswg-tumblr) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp)
 
 **Srry if I missed any**
 
-**Ok now bye-bye ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp)**
+**![Leftwing](https://i.ibb.co/FbnrWgv7/tumblr-fb3d8f463dccd57d194b9947a014d6c7-5947d585-75.webp)
+Ok now bye-bye ![Rightwing](https://i.ibb.co/QF45MQx7/tumblr-f256f49b8b6f3ee6342e1ee7a3cc9889-3bd1a2b3-75.webp)**
 
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&color=blueviolet)
 
