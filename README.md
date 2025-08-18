@@ -43,7 +43,7 @@
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Games**: *Deltarune, Undertale (+ au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Puppet combo games, Dragon Raja, and more*
 
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Demon slayer and more*
+![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Wonder Egg Priority, Demon slayer and more*
 
 **Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
 
