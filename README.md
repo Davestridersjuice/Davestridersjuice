@@ -16,7 +16,9 @@
 
 **I plan to get more into deltarune and touhou soon ![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362605825298462/tumblr_eab95519e581ba3bed64a84d04d262e3_d069e208_75.webp?ex=6893a373&is=689251f3&hm=b4895df0b199140aea4d7870efc0390f2b3adda20b43fd2343fe97b330299e34&=&animated=true) I'm looking forward to finding more fandoms!** <br>
 
-![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true) **I'M A MINOR** ![PURPLEPIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
+![moonliquid](https://i.ibb.co/nq16CxPs/tumblr-d6ef661aae18e38b58db6c6bb24f5a38-4ef7c5a4-75.webp)
+**I'M A MINOR** 
+![moonliquid](https://i.ibb.co/nq16CxPs/tumblr-d6ef661aae18e38b58db6c6bb24f5a38-4ef7c5a4-75.webp)
 
 ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **FOLLOW AND I'LL FOLLOW BACK! Follows r appreciated !** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
