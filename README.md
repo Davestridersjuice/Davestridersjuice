@@ -23,8 +23,6 @@
 
 ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **FOLLOW AND I'LL FOLLOW BACK! Follows r appreciated !** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
--**I don't follow back spam follow accs! If i do they're most-likely a friend**-
-
 
 **Discord** - `Davestridersjuice`
 
