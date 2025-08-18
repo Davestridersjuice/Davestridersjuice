@@ -9,7 +9,8 @@
 
 ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani. I'm free for any other nicknames ^_^** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
-**My pronouns r He/She/They** ![GENDERFLUID FLAG](https://i.ibb.co/VWQn0bPR/tumblr-3aee1c51c2ccfaab2652c2f7b16e4184-091cdd46-250.webp)
+**My pronouns r He/She/They**
+![GENDERFLUID FLAG](https://i.ibb.co/VWQn0bPR/tumblr-3aee1c51c2ccfaab2652c2f7b16e4184-091cdd46-250.webp)
 
 
 
