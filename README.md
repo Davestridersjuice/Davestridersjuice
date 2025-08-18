@@ -14,7 +14,7 @@
 
 
 
-**I plan to get more into deltarune and touhou soon ![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362605825298462/tumblr_eab95519e581ba3bed64a84d04d262e3_d069e208_75.webp?ex=6893a373&is=689251f3&hm=b4895df0b199140aea4d7870efc0390f2b3adda20b43fd2343fe97b330299e34&=&animated=true) I'm looking forward to finding more fandoms!** <br>
+**I plan to get more into deltarune and touhou soon. I'm looking forward to finding more fandoms!** <br>
 
 ![moonliquid](https://i.ibb.co/nq16CxPs/tumblr-d6ef661aae18e38b58db6c6bb24f5a38-4ef7c5a4-75.webp)
 **I'M A MINOR** 
