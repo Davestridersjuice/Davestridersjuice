@@ -80,9 +80,8 @@
 
 ![Suselle](https://i.ibb.co/V0cwW89h/tumblr-5bfef89069fecec3ee1804e8d4025816-b4a1df88-100.webp)
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" />
-**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you** 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e100fdfc-55f3-4ead-834e-5b54139b3b19" />
+**<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" />** 
+
 
 
 ## Item sources:
