@@ -4,8 +4,7 @@
 
 <img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/1ae5a9ec-4b5e-4501-8a4b-0a7d1bfeac2a" />
 
-**IMAGES MAY BREAK**
-**WIP**
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> **IMAGES MAY BREAK** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> 
 
 ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Hii! Hello! I'm Azure, but I also have some other names such as Claudia or Kani. I'm free for any other nicknames ^_^** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
