@@ -30,8 +30,6 @@
 
 **I block freely ^_^** 
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/80c77ef8-d389-4df8-9450-ec89a262b56c" />
-
 </div>
 
 <img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/53f16c31-802b-4ca0-b830-80393a6c7657" />
@@ -106,6 +104,8 @@
   <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake.svg">
   <img alt="github contribution grid snake animation" src="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake.svg">
 </picture>
+
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/80c77ef8-d389-4df8-9450-ec89a262b56c" />
 
 <img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/de176ff6-6970-4d4a-8322-06e7906024f6" />
 
