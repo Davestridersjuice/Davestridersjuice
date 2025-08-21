@@ -27,7 +27,7 @@
 
 **Pinterest** - *https://www.pinterest.com/r_isenII/*
 
-**Sign my ata if you'd like -** *https://chickenbootyweezer.atabook.org/*
+**Sign my ata! -** *https://chickenbootyweezer.atabook.org/*
 
 <div align= "center">
 
