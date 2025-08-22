@@ -25,7 +25,7 @@
 
 **Pinterest** - *https://www.pinterest.com/r_isenII/*
 
-**Sign my ata! -** *https://chickenbootyweezer.atabook.org/*
+**Sign my ata! -** *https://chickenbootyweezer.atabook.org/* (Srry, this link was broken b4 -_- it's now fixed!)
 
 <div align= "center">
 
