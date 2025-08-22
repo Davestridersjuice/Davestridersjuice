@@ -39,9 +39,9 @@
 
 ## My fandoms/games I like:
 
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Games**: *Deltarune, Undertale (+ au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Silent Hill, Puppet combo games, Dragon Raja, and more*
+![duoghosts](https://i.ibb.co/SXd0rd64/tumblr-444e3207aad78a8d13fb2047488bae7e-17d43fc4-75.webp) **Games**: *Deltarune, Undertale (+ au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Silent Hill, Puppet combo games, Dragon Raja, and more*
 
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Wonder Egg Priority, Demon slayer and more*
+![duoghosts](https://i.ibb.co/SXd0rd64/tumblr-444e3207aad78a8d13fb2047488bae7e-17d43fc4-75.webp) **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Wonder Egg Priority, Demon slayer and more*
 
 **Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, Icedtea, Soma and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
 
@@ -52,7 +52,6 @@
 </div>
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I'm usually sitting in ponytown with my friends<br>
-![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I've been trying to be nicer lately as i have been pretty rude so I'm working on that!<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I might be pretty awkward/not rlly message at first but trust me I'm just nervous <br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..<br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...<br>
@@ -86,10 +85,8 @@
 
 ## Item sources:
 ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) [Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
-[Littlepixels](https://www.tumblr.com/wiltyrose/746757437056565248/%E1%9B%9D-%E2%84%B1yodor-%F0%9D%92%ABixels-%F0%93%8F%8F-f2u-w-repost-%E1%B5%92%CA%B3?source=share)
 [Panty&stockingtemplate](https://www.tumblr.com/lavendergalactic/747588068545101824/stocking-anarchy-tumblr-dividers?source=share)
-[Neurocutepage](https://www.tumblr.com/neurocute/759898569938485248/purple-pixels-recolors-likereblog-if-using)
-[TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) <br>
+[Neurocutepage](https://www.tumblr.com/neurocute/759898569938485248/purple-pixels-recolors-likereblog-if-using) ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) </br>
 ![Cutecat](https://i.ibb.co/Mk0VYTSQ/tumblr-bf15ecef436fd6830ad6f3a4c5d9d58a-e21c66b0-75.webp) [PCaddiction](https://www.tumblr.com/such-a-tortured-soul/779142238931484672/purple-blinkies-compilation-pt1)
 [Higurashi/Click/Joy](https://www.tumblr.com/puppysprinkl/791932697783205888/misc-blinkie-dump-13)
 [Animalcrossing](https://www.tumblr.com/puppysprinkl/791211662001700864/pink-and-purple-misc-stamps-stamp-dump-9)
