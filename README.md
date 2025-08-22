@@ -23,7 +23,7 @@
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> `I only follow friends on here! Follow my spam for a follow back` <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" />
 
 
-**Discord** - *davestridersjuice*
+**Discord** - *davestridersjuice (Free 2 add)*
 
 **Pinterest** - *https://www.pinterest.com/r_isenII/*
 
