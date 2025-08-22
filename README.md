@@ -20,8 +20,6 @@
 
 ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp) **Follows r appreciated! ^^** ![Cutekitty](https://i.ibb.co/JjVxDXcB/tumblr-6e56ebb338a2406941aaa6d2a4e19967-76703284-75.webp)
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" /> `I only follow friends on here! Follow my spam for a follow back` <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/83556bde-994a-4266-bd1c-6c85d7a7313f" />
-
 
 **Discord** - *davestridersjuice (Free 2 add)*
 
