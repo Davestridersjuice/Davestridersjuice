@@ -43,7 +43,7 @@
 
 ![duoghosts](https://i.ibb.co/SXd0rd64/tumblr-444e3207aad78a8d13fb2047488bae7e-17d43fc4-75.webp) **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer , Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Shonen jump - Black, Panty&Stocking, Wonder Egg Priority, Demon slayer and more*
 
-**Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, Icedtea, Soma and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
+**Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, Icedtea, Soma and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom... Same with Geshin, ZZZ, and others similar to this. Though I don't mind HSR**
 
 <img width="1656" height="320" alt="image" src="https://github.com/user-attachments/assets/53f16c31-802b-4ca0-b830-80393a6c7657" />
 
