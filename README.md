@@ -56,7 +56,6 @@
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!* <br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I may sometimes yap a bunch and never stop talking!* <br>
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I REALLY like cats and the color purple... Purple is my fav color* <br>
 
 <div align="center">
