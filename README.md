@@ -50,17 +50,11 @@
 </div>
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I'm usually sitting in ponytown with my friends* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I might be pretty awkward/not rlly message at first but trust me I'm just nervous* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I may sometimes yap a bunch and never stop talking!* <br>
-
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass* <br>
 
 ![ghostly](https://i.ibb.co/rK73yjpD/tumblr-799fc51cc26e466afc45db2656a28b4e-a8a315bb-75.webp) *I REALLY like cats and the color purple... Purple is my fav color* <br>
