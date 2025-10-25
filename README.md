@@ -1,4 +1,6 @@
-## Hi there 👋
+<div align="center">
+
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=100&duration=2000&pause=1000&color=F7F7F7&center=true&width=1200&height=500&lines=Hai)](https://git.io/typing-svg)
 
 <!--
 **Davestridersjuice/Davestridersjuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
