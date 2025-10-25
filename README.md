@@ -2,6 +2,12 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=100&duration=2000&pause=1000&color=F7F7F7&center=true&width=1200&height=500&lines=Hai)](https://git.io/typing-svg)
 
+ [Ata](https://chickenbootyweezer.atabook.org/)
+[Pinterest](https://www.pinterest.com/Davestridersjuice/) 
+[Roblox](https://www.roblox.com/users/3939267694/profile) 
+[Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
+[Tumblr](https://www.tumblr.com/davestridersjuice)
+
  # this is a wip im just too lazy to code rn 
 
 <!--
