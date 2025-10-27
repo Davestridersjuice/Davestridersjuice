@@ -8,7 +8,7 @@
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
- # this is a wip im just too lazy to code rn 
+ # this is a wip im just too lazy to code rn... ignore if the link is broken
 
 <!--
 **Davestridersjuice/Davestridersjuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
