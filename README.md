@@ -1,12 +1,19 @@
 <div align="center">
 
-![tart](https://i.ibb.co/xtQthv2v/tumblr-300cbaa1e57d5a369b2a71c3ea996fe4-86689880-1280.webp)
+![](https://komarev.com/ghpvc/?username=Davestridersjuice&color=blue&label=Gamers) 
 
- [Ata](https://chickenbootyweezer.atabook.org/)
+![blinkie](https://i.ibb.co/9H2w5ht7/tumblr-a9f74249a85d7399459f93cd3cdedcfa-189c70a7-250.webp)
+
+</div>
+
+ <sub>[Ata](https://chickenbootyweezer.atabook.org/)
 [Pinterest](https://www.pinterest.com/Davestridersjuice/) 
 [Roblox](https://www.roblox.com/users/3939267694/profile) 
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
+
+<div align="center">
+
 
  # this is a wip im just too lazy to code rn... ignore if the link is broken
 
