@@ -1,6 +1,6 @@
 <div align="center">
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=100&duration=2000&pause=1000&color=F7F7F7&center=true&width=1200&height=500&lines=Hai)](https://git.io/typing-svg)
+![tart](https://i.ibb.co/xtQthv2v/tumblr-300cbaa1e57d5a369b2a71c3ea996fe4-86689880-1280.webp)
 
  [Ata](https://chickenbootyweezer.atabook.org/)
 [Pinterest](https://www.pinterest.com/Davestridersjuice/) 
