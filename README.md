@@ -21,7 +21,7 @@
 <div align="center">
 
 
- # this is a wip im just too lazy to code rn... ignore if the link is broken
+ # i would code my github but im too busy being a gamer
 
 <!--
 **Davestridersjuice/Davestridersjuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
