@@ -1,6 +1,6 @@
 <div align="center">
 
-# ${\textsf{\color{#5894d1}!!README 𝚖𝚊𝚢 𝚋𝚎 𝚑𝚎𝚊𝚛𝚍 𝚝𝚘 𝚛𝚎𝚊𝚍 𝚒𝚏 in light mode!!}}$
+# ${\textsf{\color{#5894d1}!!README 𝚖𝚊𝚢 𝚋𝚎 𝚑𝚊𝚛𝚍 𝚝𝚘 𝚛𝚎𝚊𝚍 𝚒𝚏 in light mode!!}}$
 
 <img src="https://i.ibb.co/xtQthv2v/tumblr-300cbaa1e57d5a369b2a71c3ea996fe4-86689880-1280.png">
 
