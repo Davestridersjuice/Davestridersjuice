@@ -12,16 +12,13 @@
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
-![](https://komarev.com/ghpvc/?username=Davestridersjuice&color=ADD8E6&label=Cuties^3^) 
-
-<img src="https://i.ibb.co/bMK2M23G/tumblr-ae0c59e885e6072b5d77faa32dc67d41-5ee9db3d-500.gif">
+![](https://komarev.com/ghpvc/?username=Davestridersjuice&color=ADD8E6&label=Cuties^3^)  
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/9H2w5ht7/tumblr-a9f74249a85d7399459f93cd3cdedcfa-189c70a7-250.webp" alt="tumblr-a9f74249a85d7399459f93cd3cdedcfa-189c70a7-250" border="0" /></a>
 
-<div align="center">
-
-
  # i would code my github but im too busy being a gamer
+
+ <img src="https://i.ibb.co/bMK2M23G/tumblr-ae0c59e885e6072b5d77faa32dc67d41-5ee9db3d-500.gif"> 
 
 <!--
 **Davestridersjuice/Davestridersjuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
