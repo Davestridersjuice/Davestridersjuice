@@ -22,7 +22,7 @@
 
 ***I'm either extremely talkative or really quiet... Or just straight up dry.***
 
-***I can usually be very mean, blunt, or straight up freaky and weird, so if there's any problem I really reccomend just telling me so I can fix myself...***
+***I can usually be very mean, blunt, or straight up weird, so if there's any problem I really reccomend just telling me so I can fix myself...***
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/9H2w5ht7/tumblr-a9f74249a85d7399459f93cd3cdedcfa-189c70a7-250.webp" alt="tumblr-a9f74249a85d7399459f93cd3cdedcfa-189c70a7-250" border="0" /></a>
 
