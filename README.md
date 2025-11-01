@@ -18,7 +18,7 @@
 
 ***𐙚 ‧₊˚ ⋅ Claudia/Lani ՞𐦯  Genderfluid/Pansexual ౨ৎ LIVE LAUGH LOVE IDIA （￣。。￣）***
 
-***I mainly sit with friends on PT so I can be anywhere honestly.. Though I'm usually at the HS spot, CH spot, or TWST spot.***
+***I mainly sit with friends on PT so I can be anywhere honestly.. Though I'm usually at the HS or CH spot.***
 
 ***C+H is appreciated1! + I reccomend w2i since I'm usually offtab.***
 
