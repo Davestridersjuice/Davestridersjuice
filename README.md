@@ -35,9 +35,13 @@
 
 ***Main fandoms rn: TGCF, Twisted Wonderland, Homestuck***
 
-# Okay now bye
+# Okay now bye. I'll put up my sources later right now I'm sleepy. 
 
  <img src="https://i.ibb.co/bMK2M23G/tumblr-ae0c59e885e6072b5d77faa32dc67d41-5ee9db3d-500.gif"> 
+
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/a7c12b43-5e6b-4af3-90fd-217ddb51d172" />
+
+
 
 <!--
 **Davestridersjuice/Davestridersjuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
