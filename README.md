@@ -12,11 +12,13 @@
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
+***Discord: Davestridersjuice***
+
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&color=ADD8E6&label=Cuties^3^)  
 
-***𐙚 ‧₊˚ ⋅ Claudia/Lani ՞𐦯  Genderfluid/Pansexual ౨ৎ I LOVE IDIA （￣。。￣）***
+***𐙚 ‧₊˚ ⋅ Claudia/Lani ՞𐦯  Genderfluid/Pansexual ౨ৎ LIVE LAUGH LOVE IDIA （￣。。￣）***
 
-***Since I got a Github for Ponytown, I will be talking about that! I mainly sit with friends so I can be anywhere honestly.. Though I'm usually at the HS spot, CH spot, or TWST spot.***
+***I mainly sit with friends on PT so I can be anywhere honestly.. Though I'm usually at the HS spot, CH spot, or TWST spot.***
 
 ***C+H is appreciated1! + I reccomend w2i since I'm usually offtab.***
 
