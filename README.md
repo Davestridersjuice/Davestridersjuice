@@ -1,6 +1,4 @@
 <div align="center">
-
-# might edit soon
  
 <img src="https://i.ibb.co/xtQthv2v/tumblr-300cbaa1e57d5a369b2a71c3ea996fe4-86689880-1280.png">
 
@@ -37,9 +35,9 @@
 
 ***Fandoms: Danganronpa, Jayfromthekubzscouts, Die of Death, TGCF, Tokyo Revengers, Castle swimmer, Twisted Wonderland, Homestuck, Dragon Raja, Underverse, Vocaloid, Erased [Anime], Horimiya, Soul Eater, Cardcaptor Sakura, Bungo Stray Dogs (I HATE DAZAI), Black Lagoon, Wonder Egg Priority, Tokyo Ghoul, Assasination Classroom, JJK (Though I quit the anime early), School Babysitters, The Promised Neverland, HXH, and much more I can't think of rn.***
 
-***Main fandoms rn: TGCF, Twisted Wonderland, Homestuck***
+***Main fandoms rn: TGCF, Twisted Wonderland, Homestuck*** 
 
-# Okay now bye. I'll put up my sources later right now I'm sleepy. 
+Eat sleep game REPEAT 😂😂
 
  <img src="https://i.ibb.co/bMK2M23G/tumblr-ae0c59e885e6072b5d77faa32dc67d41-5ee9db3d-500.gif"> 
 
