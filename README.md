@@ -37,7 +37,7 @@
 
 ***Main fandoms rn: TGCF, Twisted Wonderland, Homestuck*** 
 
-Eat sleep game REPEAT 😂😂
+# Eat sleep game REPEAT 😂😂
 
  <img src="https://i.ibb.co/bMK2M23G/tumblr-ae0c59e885e6072b5d77faa32dc67d41-5ee9db3d-500.gif"> 
 
