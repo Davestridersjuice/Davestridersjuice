@@ -2,8 +2,7 @@
 
 ***I AM A MINOR! DNI 18+ 17+ is thin ice!*** 
 
-<sub>[Ata](https://chickenbootyweezer.atabook.org/)
-[Pinterest](https://www.pinterest.com/Davestridersjuice/) 
+<sub>[Pinterest](https://www.pinterest.com/Davestridersjuice/) 
 [Roblox](https://www.roblox.com/users/3939267694/profile) 
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
@@ -14,6 +13,8 @@
 
 ***𐙚 ‧₊˚ ⋅ Claudia/Lani ՞𐦯  Genderfluid/Pansexual ౨ৎ LIVE LAUGH LOVE ZANKA/RUDO（￣。。￣）***
 
+**Wanna sign my ata? 𐂯 [Click this!](https://chickenbootyweezer.atabook.org/) 𐂯**
+
 ***I mainly sit with friends on PT so I can be anywhere honestly.. Though I'm usually at the HS or CH spot.***
 
 ***C+H is appreciated1! + I reccomend w2i since I'm usually offtab.***
@@ -22,7 +23,7 @@
 
 ***I can usually be very mean, blunt, or straight up weird, so if there's any problem I really reccomend just telling me so I can fix myself...***
 
-# Interests
+# ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤInterests
 
 ***Fandoms: Danganronpa, Jayfromthekubzscouts, Die of Death, TGCF, Tokyo Revengers, Castle swimmer, Twisted Wonderland, Homestuck, Dragon Raja, Underverse, Vocaloid, Erased [Anime], Horimiya, Soul Eater, Cardcaptor Sakura, Bungo Stray Dogs (I HATE DAZAI), Black Lagoon, Wonder Egg Priority, Tokyo Ghoul, Assasination Classroom, JJK (Though I quit the anime early), School Babysitters, The Promised Neverland, HXH, and much more I can't think of rn.***
 
