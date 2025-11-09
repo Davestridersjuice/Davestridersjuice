@@ -7,7 +7,7 @@
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
-***Discord: Davestridersjuice***
+***Discord: davestridersjuice***
 
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&color=000000&label=Cuties^3^)  
 
