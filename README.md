@@ -1,6 +1,6 @@
 <div align="center">
 
-***I AM A MINOR! DNI 18+ 17+ is thin ice!*** 
+***I AM A MINOR! DNI 18+ 17 is thin ice!*** 
 
 <sub>[Pinterest](https://www.pinterest.com/Davestridersjuice/) 
 [Roblox](https://www.roblox.com/users/3939267694/profile) 
