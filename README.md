@@ -11,7 +11,7 @@
 
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&color=000000&label=Cuties^3^)  
 
-***𐙚 ‧₊˚ ⋅ Claudia/Lani ՞𐦯  Genderfluid/Pansexual ౨ৎ LIVE LAUGH LOVE ZANKA/RUDO（￣。。￣）***
+***𐙚 ‧₊˚ ⋅ Claudia/Lani ՞𐦯  Genderfluid/Pansexual ౨ৎ LIVE LAUGH LOVE ENJIN（￣。。￣）***
 
 **Wanna sign my ata? 𐂯 [Click this!](https://chickenbootyweezer.atabook.org/) 𐂯**
 
